@@ -1,0 +1,1 @@
+# full-form-lexicon-telugu
